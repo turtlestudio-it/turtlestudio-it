@@ -14,8 +14,8 @@ We operate as a dedicated digital tech partner, taking the technical weight off 
 Meet the minds driving our craftsmanship and operational excellence:
 
 *   **Ashik Iqbal** – *Founder & CEO*  
-    🔗 [Connect on Facebook](https://www.facebook.com/ashi1k/) | 📧 [contact.turtlestudio@gmail.com]
-*   **Esrat Sultana** – *Chief Operating Officer (COO)*  
+    🔗 [Connect on Facebook](https://www.facebook.com/ashi1k/)
+*   **Esrat Sultana** – *Co-Founder & COO*  
     🔗 [Connect on Facebook](https://www.facebook.com/esrat.majumder)
 
 ---
