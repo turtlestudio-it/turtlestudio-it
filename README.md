@@ -6,7 +6,9 @@ At **Turtle Studio**, we don’t just build software; we craft digital experienc
 
 We operate as a dedicated digital tech partner, taking the technical weight off our clients' shoulders, reducing operational costs, and scaling businesses with maximum efficiency.
 
-🌐 **Visit our website:** [turtlestudio-it.com](https://turtlestudio-it.com)
+*   **Official Website:** [turtlestudio-it.com](https://turtlestudio-it.com)
+*   **Facebook Page:** [facebook.com/turtlestudioit](https://www.facebook.com/profile.php?id=61589074289542)
+*   **Instagram:** [instagram.com/turtlestudioit](https://www.instagram.com/turtle_studi1o/)
 
 ---
 
